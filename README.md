@@ -15,6 +15,7 @@ I am currently pursuing a Master of Science in Mathematical Engineering with a s
 ## 📫 Get in touch
 
 📧 Email: elisa.nordera@gmail.com
+
 💼 LinkedIn: Elisa Nordera
 
 
